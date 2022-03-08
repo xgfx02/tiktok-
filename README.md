@@ -9,8 +9,8 @@ iOS 旧版App 在线安装方法：
 2、点击安装所需要的APP
 
 （如果没有提示安装请多点几次安装按钮）
-账号：prtphv@163.com
-密码：Ak112211
+账号：sukuge2525@163.com
+密码：Aa112211
 App：TikTok 21.1.0（IOS免拔卡👉解锁教程👈）点击安装TikTok
 账号：prtphv@163.com
 密码：Ak112211
